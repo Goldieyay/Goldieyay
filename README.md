@@ -13,8 +13,6 @@
 
 𓊆🪽𓊇 . Doggies / Animals 4 life . !
 
-𓊆🍙𓊇 . Fluttershy / Yuta Okkotsu kinnie . !
-
 𓊆🍥𓊇 . Gaming, music, animals, anime, kindness, collections >>> . !
 
 ## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶
@@ -23,4 +21,11 @@
 
 𓊆🍶𓊇 . Animes/Shows: JJK, Mob100, Fullmetal Alchemist: Brotherhood, RE:Zero, K-on!, TADC, MLP:FiM, etc!! .
 
-𓊆🎲𓊇 . Games: Sonic the Hedgehog, Dandy's World, 
+𓊆🍙𓊇 . Kinnies: Fluttershy, Yuta Okkotsu, Jumpei (yes the guy nobody cares about but I do), Shigeo Kageyama, Coco Pommel, Pinkie Pie, Marble Pie, Coco Pommel, Gangle, Ragatha, Sayori, Yuri, Cocoa, Basil, Rem, Otto, Whisper the Wolf, Bocchi the Rock, Puso, etc. !
+> Mainly Fluttershy, Sayori, Yuta, Cocoa and Ragatha!
+
+𓊆🎧𓊇 . Hobbies: Drawing, listening to music, watching animes, playing video-games, helping people, reading, writing . !
+
+## *Be yourself, be cringe, be corny, be kind - Be free!!!*
+
+ <img width="736" height="245" alt="image" src="https://github.com/user-attachments/assets/e35d74d5-b143-47df-90e0-911a68019cb8" />
