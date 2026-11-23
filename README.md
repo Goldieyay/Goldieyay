@@ -1,6 +1,6 @@
-## ᛝ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ᛝ
+## ᛝ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ᛝ
 *๋ ࣭ ⭑ ;; Hiya! Call me Goldie / Gold! I hope we can get along.* zᶻ ૮˶- ﻌ -˶ა⌒)ᦱ
-## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶
+## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧
 > *Free cuddles the entire time on Pony Town! I don't mind if you're in front of my pony - just don't cover it completely :3*
 
 𓊆🐇𓊇 . She / Her . !  
@@ -8,6 +8,7 @@
 𓊆🐺𓊇 . INFP ;; 9w1 . !
 
 𓊆🐚𓊇 . Megumi Fushiguro enthusiast / JJK fan . !
+> *Itafushi 5ever!!!*
 
 𓊆☁️𓊇 . Stomach Book / Alex G #1 Fan . !
 
@@ -17,7 +18,7 @@
 
 𓊆💌𓊇 . I can speak english and portuguese . !
 
-## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶
+## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧
 
 ### *Fandoms*
 
