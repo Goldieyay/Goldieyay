@@ -21,12 +21,14 @@
 
 ### *Fandoms*
 
-𓊆🍶𓊇 . Animes/Shows: JJK, Mob100, Fullmetal Alchemist: Brotherhood, RE:Zero, K-on!, TADC, MLP:FiM, etc!! .
+𓊆🍶𓊇 . Animes/Shows: JJK, Mob100, Fullmetal Alchemist: Brotherhood, RE:Zero, K-on!, TADC, MLP:FiM, etc. !
 
 𓊆🍙𓊇 . Kinnies: Fluttershy, Yuta Okkotsu, Jumpei (yes the guy nobody cares about but I do), Shigeo Kageyama, Coco Pommel, Pinkie Pie, Marble Pie, Gangle, Ragatha, Sayori, Yuri, Cocoa, Basil, Rem, Otto, Whisper the Wolf, Bocchi the Rock, Puso, etc. !
 > Mainly Fluttershy, Sayori, Yuta, Cocoa and Ragatha!
 
 𓊆🎧𓊇 . Hobbies: Drawing, listening to music, watching animes, playing video-games, helping people, reading, writing . !
+
+𓊆🐩𓊇 . Favorite Music Artists: HIM, Linkin Park, Limp Bizkit, BabyMetal, Stomach Book, Alex G, Mitski, Adrianne Lenker, etc. !
 
 ## *Be yourself, be cringe, be corny, be kind - Be free!!!*
 
