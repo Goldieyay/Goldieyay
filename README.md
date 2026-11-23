@@ -15,6 +15,8 @@
 
 𓊆🍥𓊇 . Gaming, music, animals, anime, kindness, collections >>> . !
 
+𓊆💌𓊇 . I can speak english and portuguese . !
+
 ## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶
 
 ### *Fandoms*
