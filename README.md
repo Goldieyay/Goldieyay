@@ -8,7 +8,7 @@
 𓊆🐺𓊇 . INFP ;; 9w1 . !
 
 𓊆🐚𓊇 . Megumi Fushiguro enthusiast / JJK fan . !
-> *Itafushi 5ever!!!*
+> <sub> *Itafushi 5ever!!!*
 
 𓊆☁️𓊇 . Stomach Book / Alex G #1 Fan . !
 
