@@ -1,5 +1,5 @@
 ## ᛝ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ᛝ
- Hiya! Call me Goldie / Gold! I hope we can get along. zᶻ ૮˶- ﻌ -˶ა⌒)ᦱ  
+*๋ ࣭ ⭑ ;; Hiya! Call me Goldie / Gold! I hope we can get along.* zᶻ ૮˶- ﻌ -˶ა⌒)ᦱ
 ## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶
 
 
