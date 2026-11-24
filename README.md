@@ -7,6 +7,8 @@
 
 𓊆🐺𓊇 . INFP ;; 9w1 . !
 
+𓊆📃𓊇 . Suspected ADHD / Autism . !
+
 𓊆🐚𓊇 . Megumi Fushiguro enthusiast / JJK fan . !
 > <sub> *Itafushi 5ever!!!*
 
