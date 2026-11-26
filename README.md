@@ -31,7 +31,7 @@
 
 𓊆🎧𓊇 . Hobbies: Drawing, listening to music, watching animes, playing video-games, helping people, reading, writing . !
 
-𓊆🐩𓊇 . Favorite Music Artists: HIM, Linkin Park, Limp Bizkit, BabyMetal, Stomach Book, Alex G, Mitski, Adrianne Lenker, etc. !
+𓊆🐩𓊇 . Favorite Music Artists: HIM, Linkin Park, Limp Bizkit, BabyMetal, Slipknot, MARETU, Beabadoobee, Stomach Book, Alex G, Mitski, Adrianne Lenker, Goreshit, Laufey, Lana Del Rey, etc. !
 
 ## *Be yourself, be cringe, be corny, be kind - Be free!!!*
 
