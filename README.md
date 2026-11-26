@@ -3,6 +3,8 @@
 ## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧
 > *Free cuddles the entire time on Pony Town! I don't mind if you're in front of my pony - just don't cover it completely :3*  
 
+𓊆🌼𓊇 . I usually don't reach out first cuz I'm anxious but I'll be glad to interact with anyone and I encourage it :3 . !
+
 𓊆🐇𓊇 . She / Her . !  
 
 𓊆🐺𓊇 . INFP ;; 9w1 . !
@@ -22,6 +24,8 @@
 
 
 ## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧
+
+[url=https://postimages.org/][img]https://i.postimg.cc/9M7shG9W/blinkies-Cafe-a-X.gif[/img][/url]
 
 ### *Fandoms*
 
