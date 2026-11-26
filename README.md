@@ -20,6 +20,8 @@
 
 𓊆💌𓊇 . I can speak english and portuguese . !
 
+𓊆🌼𓊇 . Christ follower (I'M ALL FOR EVERY HUMAN RIGHTS PLEASE DON'T MISUNDERSTAND IT) . !
+
 ## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧
 
 ### *Fandoms*
