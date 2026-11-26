@@ -2,7 +2,7 @@
 *๋ ࣭ ⭑ ;; Hiya! Call me Goldie / Gold! I hope we can get along.* zᶻ ૮˶- ﻌ -˶ა⌒)ᦱ
 ## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧
 > *Free cuddles the entire time on Pony Town! I don't mind if you're in front of my pony - just don't cover it completely :3*
-### *DNI: the basic; homophobics, racists, anything that ends with -phobic that is prejudicial.*
+### *DNI: the basic; homophobics, racists, anything that ends with -phobic that is prejudicial and/or mean.*
 
 𓊆🐇𓊇 . She / Her . !  
 
