@@ -25,8 +25,6 @@
 
 ## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧
 
-[url=https://postimages.org/][img]https://i.postimg.cc/9M7shG9W/blinkies-Cafe-a-X.gif[/img][/url]
-
 ### *Fandoms*
 
 𓊆🍶𓊇 . Animes/Shows: JJK, Mob100, Fullmetal Alchemist: Brotherhood, RE:Zero, K-on!, TADC, MLP:FiM, etc. !
