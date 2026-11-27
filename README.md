@@ -3,7 +3,7 @@
 ## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧
 > *Free cuddles the entire time on Pony Town! I don't mind if you're in front of my pony - just don't cover it completely :3*  
 
-𓊆🌼𓊇 . I'm a very shy person so I will likely not reach out; I am, however, more than happy to INT! I'm very socially awkward, so bear with me... :,D . !
+𓊆🌼𓊇 . I'm a very shy person so I will likely not reach out; I am, however, more than happy to INT! I'm very socially awkward, so bear with me... :,D If I don't reply to you, I am not ignoring you, I just go afk a lot . !
         
 𓊆🐇𓊇 . She / Her . !  
 
