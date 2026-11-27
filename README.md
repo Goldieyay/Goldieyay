@@ -3,8 +3,8 @@
 ## ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧
 > *Free cuddles the entire time on Pony Town! I don't mind if you're in front of my pony - just don't cover it completely :3*  
 
-𓊆🌼𓊇 . I usually don't reach out first cuz I'm anxious but I'll be glad to interact with anyone and I encourage it :3 . !
-
+𓊆🌼𓊇 . I'm a very shy person so I will likely not reach out; I am, however, more than happy to INT! I'm very socially awkward, so bear with me... :,D . !
+        
 𓊆🐇𓊇 . She / Her . !  
 
 𓊆🐺𓊇 . INFP ;; 9w1 . !
@@ -13,9 +13,7 @@
 
 𓊆🐚𓊇 . Megumi Fushiguro enthusiast / JJK fan . !
 > <sub> *Itafushi 5ever!!!*
-
-𓊆☁️𓊇 . Stomach Book / Alex G #1 Fan . !
-
+        
 𓊆🪽𓊇 . Doggies / Animals 4 life . !
 
 𓊆🍥𓊇 . Gaming, music, animals, anime, kindness, collections >>> . !
